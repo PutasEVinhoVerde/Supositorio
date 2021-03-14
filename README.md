@@ -1,4 +1,0 @@
-# Supositorio
-ahhhhhhhhhh
-reeeeeeeee
-pop
